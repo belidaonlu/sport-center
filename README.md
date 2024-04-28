@@ -1,6 +1,7 @@
 # SPORT CENTER PROJECT
 
 ## VIDEO:
+https://github.com/Nuronlu/sport_center/assets/124145684/6e1ff9a2-65e5-4dbe-8246-5d10db0dd9fe
 
 
 ## SUMMARY
